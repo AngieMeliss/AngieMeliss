@@ -1,4 +1,4 @@
-### Hi there 👋 how are you?
+### Hi there 👋 How's going?
 
 - _I am a technology enthusiast and I love to learn how things are made and why._ `I am very curious.`
 
